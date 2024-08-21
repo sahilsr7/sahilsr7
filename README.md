@@ -8,9 +8,9 @@
 
 - 🔭 I’m currently working on **Theoreticle Framework**
 
-- 🌱 I’m currently learning **Provisions and Reserves**
+- 🌱 I’m currently learning **Motion Graphics & Data Visualization**
 
-- 💬 Ask me about **Football , Videogames**
+- 💬 Ask me about **Football , Videogames , Histoty and Politics**
 
 - 📫 How to reach me **henrixsahil@gmail.com**
 
